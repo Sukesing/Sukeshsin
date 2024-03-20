@@ -13,3 +13,4 @@ i hai kya karu phantom app
 do you have any time 
 hello give season 
 ye kya hai hai ki nhi ho 
+Allah ek hai qur esvarvbhi ek
