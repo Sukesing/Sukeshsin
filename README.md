@@ -16,3 +16,4 @@ ye kya hai hai ki nhi ho
 Allah ek hai qur esvarvbhi ek
 hdhdh
 i hpt mee koi frejw
+sa the fried
