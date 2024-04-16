@@ -22,5 +22,3 @@ the my counry
 yes me 
 gfgufyuluyuylf
 good day
-the crypto 
-wait 
